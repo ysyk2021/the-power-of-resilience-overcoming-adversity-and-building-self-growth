@@ -1,5 +1,3 @@
-Resilience-Building Exercises for Navigating Challenging Situations
-=====================================================================================================
 
 In this chapter, we will explore resilience-building exercises that can help us navigate challenging situations and build the resilience we need to overcome adversity.
 

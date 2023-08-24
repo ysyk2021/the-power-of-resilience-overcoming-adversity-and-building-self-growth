@@ -1,5 +1,3 @@
-The Role of Relationships and Social Support in Building Resilience
-================================================================================================================
 
 Social connections, relationships, and social support play a critical role in building resilience. In this chapter, we will explore the importance of social connections in building resilience and strategies for strengthening our social networks.
 

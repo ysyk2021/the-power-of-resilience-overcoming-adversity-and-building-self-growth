@@ -1,5 +1,3 @@
-The Concept of Post-Traumatic Growth and Its Relationship to Resilience
-=========================================================================================================
 
 Resilience is the ability to overcome adversity and bounce back from setbacks. However, resilience isn't just about bouncing back; it's also about growing through adversity. Post-traumatic growth is a concept that describes the positive changes that can occur after experiencing trauma or adversity. In this chapter, we will discuss the concept of post-traumatic growth and its relationship to resilience.
 

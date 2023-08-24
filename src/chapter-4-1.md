@@ -1,5 +1,3 @@
-Identifying Different Types of Adversity
-=======================================================================
 
 Adversity comes in many forms and can affect us in different ways. In this chapter, we'll explore the different types of adversity that we may face in our lives, including physical, emotional, and situational challenges.
 

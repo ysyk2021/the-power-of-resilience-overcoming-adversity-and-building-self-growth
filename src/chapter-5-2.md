@@ -1,5 +1,3 @@
-The Role of Mindset, Emotions, and Social Support in Building Resilience
-==========================================================================================================================
 
 Resilience is the ability to adapt and recover from challenging or stressful situations. In this chapter, we will explore the role of mindset, emotions, and social support in building resilience.
 

@@ -1,5 +1,3 @@
-Importance of resilience in personal and professional life
-========================================================================
 
 Resilience is a critical quality that helps us overcome challenges and bounce back from adversity. Whether we are facing personal or professional setbacks, resilience allows us to maintain our sense of well-being and continue moving forward towards our goals.
 

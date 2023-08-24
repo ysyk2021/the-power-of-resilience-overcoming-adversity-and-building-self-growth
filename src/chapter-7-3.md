@@ -1,5 +1,3 @@
-Enhancing Self-Awareness and Emotional Regulation
-==========================================================================================
 
 Building a resilient mindset is key to developing the capacity to overcome life's challenges and thrive in the face of adversity. In this chapter, we'll explore strategies for enhancing self-awareness and emotional regulation - two key components of building resilience.
 

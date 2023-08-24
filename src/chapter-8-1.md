@@ -1,5 +1,3 @@
-Developing healthy habits that enhance resilience
-==========================================================================================
 
 Resilience is an essential quality for overcoming adversity and building self-growth. One of the most effective ways to cultivate resilience is by developing healthy habits that support our physical, mental, and emotional well-being.
 
@@ -34,5 +32,4 @@ Embracing a growth mindset is another important component of cultivating resilie
 To embrace a growth mindset, consider reframing negative self-talk into more positive and constructive language. Additionally, focus on your strengths and accomplishments, and celebrate small wins along the way.
 
 In conclusion, cultivating resilient habits is an essential part of building resilience and overcoming adversity. By prioritizing self-care, practicing mindfulness, building social connections, and embracing a growth mindset, we can develop healthy habits that enhance our ability to cope with challenges and thrive in the face of adversity.
-
 

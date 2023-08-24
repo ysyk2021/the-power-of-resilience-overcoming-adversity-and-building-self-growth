@@ -1,5 +1,3 @@
-Chapter 2: Types of Adversity
-=============================
 
 Adversity comes in many forms, and can have a significant impact on our lives. In this chapter, we will explore different types of adversity, how adversity affects individuals differently, and the impact of adverse childhood experiences (ACEs) on resilience.
 

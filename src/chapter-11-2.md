@@ -1,5 +1,3 @@
-Developing Problem-Solving Skills and Flexibility
-===================================================================================
 
 In this chapter, we will explore the importance of developing problem-solving skills and flexibility in coping with adversity and building resilience.
 

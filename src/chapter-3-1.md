@@ -1,5 +1,3 @@
-Definition and characteristics of resilience
-============================================================================
 
 Resilience is the ability to overcome adversity, bounce back from setbacks, and recover quickly from difficult situations. It involves a combination of psychological, emotional, and social factors that enable us to cope with stress and challenges in a positive and productive way.
 

@@ -1,5 +1,3 @@
-Incorporating Mindfulness and Relaxation Techniques into Daily Routines
-================================================================================================================
 
 Cultivating resilient habits is essential for building resilience and overcoming adversity. In this chapter, we will explore the benefits of mindfulness and relaxation techniques in building resilience and strategies for incorporating these practices into daily routines.
 

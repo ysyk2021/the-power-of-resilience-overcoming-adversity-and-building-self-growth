@@ -1,5 +1,3 @@
-The Impact of Adverse Childhood Experiences (ACEs) on Resilience
-===============================================================================================
 
 Adverse childhood experiences (ACEs) are traumatic events or situations that occur during childhood, such as abuse, neglect, or household dysfunction. These experiences can have a significant impact on an individual's resilience and ability to cope with adversity.
 

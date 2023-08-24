@@ -1,5 +1,3 @@
-Chapter 8: Post-Traumatic Growth
-================================
 
 Trauma and adversity can have a profound impact on our lives, but they can also provide opportunities for growth and self-discovery. In this chapter, we will explore the concept of post-traumatic growth and its relationship to resilience.
 

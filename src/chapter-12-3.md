@@ -1,5 +1,3 @@
-Building a new normal after traumatic experiences
-===================================================================================
 
 Traumatic experiences can be incredibly difficult to overcome, but they can also lead to post-traumatic growth. In this chapter, we will explore what post-traumatic growth is, how it differs from resilience, and strategies for building a new normal after traumatic experiences.
 
@@ -27,5 +25,4 @@ Building a new normal after traumatic experiences can be challenging, but there 
 * **Setting goals:** Setting goals and working towards them can provide a sense of purpose and direction as we build a new normal after traumatic experiences.
 
 In conclusion, post-traumatic growth is a powerful way to build a new normal after traumatic experiences. By understanding what post-traumatic growth is, how it differs from resilience, and implementing strategies for building a new normal, we can use the experience of trauma to create positive change and achieve personal and professional growth.
-
 

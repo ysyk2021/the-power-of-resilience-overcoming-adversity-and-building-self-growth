@@ -1,5 +1,3 @@
-Effective Coping Strategies for Dealing with Adversity
-========================================================================================
 
 Coping with adversity is an essential skill for building resilience and achieving personal growth. In this chapter, we will explore effective coping strategies for dealing with adversity and developing the resilience we need to thrive.
 

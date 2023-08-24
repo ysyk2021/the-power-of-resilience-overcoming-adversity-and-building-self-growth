@@ -1,5 +1,3 @@
-Chapter 6: Strengthening Social Connections
-===========================================
 
 Social connections and relationships are a critical component of building resilience and overcoming adversity. In this chapter, we will explore the role of relationships and social support in building resilience, as well as strategies for building and maintaining supportive networks, and navigating difficult relationships.
 

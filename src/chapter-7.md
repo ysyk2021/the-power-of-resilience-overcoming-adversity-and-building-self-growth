@@ -1,5 +1,3 @@
-Chapter 4: Building a Resilient Mindset
-=======================================
 
 Building a resilient mindset is key to developing the capacity to overcome life's challenges and thrive in the face of adversity. In this chapter, we'll explore strategies for developing a positive and growth-oriented mindset, techniques for reframing negative thoughts and beliefs, and enhancing self-awareness and emotional regulation.
 

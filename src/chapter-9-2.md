@@ -1,5 +1,3 @@
-Strategies for Building and Maintaining Supportive Networks
-========================================================================================================
 
 Building and maintaining supportive networks is essential for building resilience and overcoming adversity. In this chapter, we will explore strategies for building and maintaining supportive networks that can help us navigate difficult situations and achieve personal growth.
 

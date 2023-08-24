@@ -1,5 +1,3 @@
-How Adversity Affects Individuals Differently
-============================================================================
 
 Adversity can come in many different forms and affects individuals differently. In this chapter, we will explore the different types of adversity and how they can impact our lives.
 

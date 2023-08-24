@@ -1,5 +1,3 @@
-Chapter 1: What is Resilience?
-==============================
 
 Resilience is the ability to adapt and bounce back from life's challenges and adversities. In this chapter, we'll explore the definition and characteristics of resilience, the science behind resilience, and the importance of resilience in overcoming adversity.
 

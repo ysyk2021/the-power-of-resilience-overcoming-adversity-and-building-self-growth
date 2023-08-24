@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored the power of resilience and its impact on personal and professional growth. We have examined strategies for developing resilience, including cultivating resilient habits, building social connections, embracing a growth mindset, and more.
 

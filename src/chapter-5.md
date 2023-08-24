@@ -1,5 +1,3 @@
-Chapter 3: Key Factors That Influence Resilience
-================================================
 
 Resilience is a complex and multifaceted skill that can be influenced by a variety of internal and external factors. In this chapter, we'll explore the key factors that contribute to resilience, including mindset, emotions, social support, and resilience-building activities and practices.
 

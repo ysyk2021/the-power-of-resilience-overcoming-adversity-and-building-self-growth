@@ -1,5 +1,3 @@
-Strategies for finding meaning and purpose in the aftermath of adversity
-==========================================================================================================
 
 In this chapter, we will explore strategies for finding meaning and purpose in the aftermath of adversity. These strategies can help us develop post-traumatic growth, which involves positive psychological change that occurs as a result of difficult experiences.
 

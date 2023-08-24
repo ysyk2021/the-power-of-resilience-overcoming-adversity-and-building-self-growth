@@ -1,5 +1,3 @@
-Chapter 5: Cultivating Resilient Habits
-=======================================
 
 Developing resilient habits is essential for building the resilience needed to overcome adversity and achieve personal and professional growth. In this chapter, we will explore strategies for developing healthy habits that enhance resilience, the importance of self-care and stress management in building resilience, and incorporating mindfulness and relaxation techniques into daily routines.
 

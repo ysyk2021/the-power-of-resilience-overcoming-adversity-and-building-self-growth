@@ -1,5 +1,3 @@
-Techniques for Reframing Negative Thoughts and Beliefs
-===============================================================================================
 
 Building a resilient mindset involves reframing negative thoughts and beliefs. In this chapter, we will explore techniques for reframing negative thoughts and beliefs that can help us build a more positive and growth-oriented mindset.
 

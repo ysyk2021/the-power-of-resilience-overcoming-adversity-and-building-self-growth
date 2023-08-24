@@ -1,5 +1,3 @@
-Navigating Difficult Relationships and Setting Boundaries
-======================================================================================================
 
 Strengthening social connections is an important aspect of building resilience. However, navigating difficult relationships and setting boundaries can be challenging. In this chapter, we will explore strategies for strengthening social connections, managing difficult relationships, and setting healthy boundaries.
 
