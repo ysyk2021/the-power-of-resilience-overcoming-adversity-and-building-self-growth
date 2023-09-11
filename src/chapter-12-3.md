@@ -1,5 +1,4 @@
-Chapter 9: Building a New Normal After Traumatic Experiences
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of building a new normal after traumatic experiences. Trauma can disrupt our lives and challenge our sense of stability, but with resilience and intentional strategies, it is possible to create a new sense of normalcy that allows for healing, growth, and self-empowerment.
 

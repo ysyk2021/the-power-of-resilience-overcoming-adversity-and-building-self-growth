@@ -1,5 +1,4 @@
-Chapter 9: Internal and External Factors that Contribute to Resilience
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the internal and external factors that contribute to resilience. Resilience is the ability to bounce back from adversity, navigate challenges, and grow stronger in the face of adversity. Understanding these factors can help individuals cultivate resilience and foster personal growth.
 

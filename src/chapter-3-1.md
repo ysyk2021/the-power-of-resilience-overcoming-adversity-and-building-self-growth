@@ -1,5 +1,4 @@
-Chapter 2: Definition and Characteristics of Resilience
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the definition and characteristics of resilience. Understanding what resilience entails and its key attributes can provide a solid foundation for building resilience and overcoming adversity.
 

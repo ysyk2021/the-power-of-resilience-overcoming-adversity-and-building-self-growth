@@ -1,5 +1,4 @@
-Chapter 9: Resilience-Building Exercises for Navigating Challenging Situations
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore resilience-building exercises designed to help individuals navigate challenging situations with strength and adaptability. These exercises are aimed at developing the skills and mindset necessary to overcome adversity, foster personal growth, and build resilience.
 

@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Resilience in Overcoming Adversity
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial role that resilience plays in overcoming adversity. Resilience is a powerful ability that enables individuals to bounce back, adapt, and grow stronger in the face of challenges and setbacks.
 

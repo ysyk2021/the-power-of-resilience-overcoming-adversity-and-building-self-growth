@@ -1,5 +1,4 @@
-Chapter 3: Identifying Different Types of Adversity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various types of adversity that individuals may encounter on their journey toward resilience and self-growth. Understanding these different types of adversity is essential for developing effective strategies to overcome challenges and build resilience.
 

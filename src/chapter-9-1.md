@@ -1,5 +1,4 @@
-Chapter 3: The Role of Relationships and Social Support in Building Resilience
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical role of relationships and social support in building resilience. Human connections and a strong support network play a crucial role in helping individuals overcome adversity, navigate challenges, and foster personal growth.
 

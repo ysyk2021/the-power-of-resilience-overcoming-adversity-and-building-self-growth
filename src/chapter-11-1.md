@@ -1,5 +1,4 @@
-Chapter 7: Effective Coping Strategies for Dealing with Adversity
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective coping strategies for dealing with adversity. Building resilience involves developing healthy and adaptive ways to navigate through challenging circumstances and bounce back from setbacks. By implementing these coping strategies, individuals can enhance their ability to face adversity with strength, courage, and a sense of empowerment.
 

@@ -1,5 +1,4 @@
-Chapter 12: Strategies for Developing a Positive and Growth-Oriented Mindset
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for developing a positive and growth-oriented mindset. Cultivating a mindset that embraces challenges, learns from failures, and seeks opportunities for personal growth is essential for building resilience and overcoming adversity.
 

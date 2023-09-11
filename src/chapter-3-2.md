@@ -1,5 +1,4 @@
-Chapter 7: The Science Behind Resilience
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the science behind resilience and understand the psychological and neurological processes that contribute to building resilience. Understanding the underlying science can provide valuable insights into how resilience works and how individuals can cultivate it.
 

@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Building and Maintaining Supportive Networks
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for building and maintaining supportive networks. Creating a strong support system is vital for overcoming adversity and fostering resilience. By cultivating meaningful connections and nurturing relationships, individuals can access valuable support, guidance, and encouragement along their path of personal growth.
 

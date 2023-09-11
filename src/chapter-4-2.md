@@ -1,5 +1,4 @@
-Chapter 9: How Adversity Affects Individuals Differently
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how adversity can affect individuals differently and the various factors that contribute to these differences. Understanding the diverse impact of adversity is crucial for developing nuanced strategies to overcome challenges, build resilience, and foster self-growth.
 

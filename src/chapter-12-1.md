@@ -1,5 +1,4 @@
-Chapter 5: The Concept of Post-Traumatic Growth and Its Relationship to Resilience
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of post-traumatic growth (PTG) and its relationship to resilience. PTG refers to positive psychological changes that individuals may experience following a traumatic event or significant adversity. Understanding PTG and its connection to resilience can provide valuable insights into the transformative power of overcoming challenges.
 

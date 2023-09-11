@@ -1,5 +1,4 @@
-Chapter 6: The Impact of Adverse Childhood Experiences (ACEs) on Resilience
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that Adverse Childhood Experiences (ACEs) can have on an individual's resilience. Understanding how ACEs can shape one's ability to overcome adversity and build self-growth is crucial for developing effective strategies to promote resilience in individuals who have experienced childhood trauma.
 

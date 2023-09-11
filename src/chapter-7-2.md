@@ -1,5 +1,4 @@
-Chapter 15: Techniques for Reframing Negative Thoughts and Beliefs
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective techniques for reframing negative thoughts and beliefs. Reframing is a powerful cognitive skill that can help individuals overcome adversity, build resilience, and cultivate a more positive and growth-oriented mindset.
 

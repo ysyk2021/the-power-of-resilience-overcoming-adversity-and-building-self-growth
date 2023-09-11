@@ -1,5 +1,4 @@
-Chapter 6: Developing Healthy Habits That Enhance Resilience
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing healthy habits that enhance resilience. These habits contribute to overall well-being and play a key role in building the strength and stamina needed to overcome adversity and foster personal growth.
 

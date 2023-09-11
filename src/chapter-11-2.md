@@ -1,5 +1,4 @@
-Chapter 8: Developing Problem-Solving Skills and Flexibility
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing problem-solving skills and flexibility as key components of building resilience and overcoming adversity. By enhancing these abilities, individuals can effectively navigate challenges, adapt to changing circumstances, and foster personal growth.
 
